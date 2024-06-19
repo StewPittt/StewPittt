@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @StewPittt
+- 👀 I’m interested in Sports, Webapplications, Embedded Systems
+- 🌱 I’m currently learning Webapplications
+- 😄 Pronouns: he/him
